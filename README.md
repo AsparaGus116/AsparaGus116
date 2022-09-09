@@ -1,1 +1,1 @@
-Hi! My name's August Bresnaider, and I'm a second-year Computer Science / Computer Engineering major at the University of Virginia. 
+a dilettante if there ever was one, my thoughts rattle around in my head creating a tremendous racket.
